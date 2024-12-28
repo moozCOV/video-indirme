@@ -7,3 +7,4 @@ Fiyat  150 TL dir tek seferlik ödeme  aylık değildir!!!
 
 
 Discord : mooz_cov
+İtem satış : https://www.itemsatis.com/yazilim-bot-satislari/video-indirme-programi-3357674.html
